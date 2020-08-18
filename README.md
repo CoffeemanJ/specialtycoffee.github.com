@@ -1,1 +1,1 @@
-# specialtycoffee.github.com
+# specialtycoffee.github.io
